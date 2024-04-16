@@ -1,4 +1,3 @@
-# ReadMe
 🌟 Motivated MBA candidate with strong analytical skills, offering strategic insights and collaborative leadership.
 
 🚀 Experienced in marketing and market analysis, driving brand visibility and uncovering trends.
